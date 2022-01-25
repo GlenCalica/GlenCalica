@@ -10,4 +10,4 @@ These are the technologies that I've used before:
 
 I've previously been an administrative assistant in two different IT departments over four years at my previous university. When I was a student, I've spent several years as an officer at our international student organization (event coordinator and vice president).
 
-Feel free to reach me at glencalica@gmail.com
+Feel free to reach me at glencalica@gmail.com or via my [LinkedIn](https://www.linkedin.com/in/glencalica/)
